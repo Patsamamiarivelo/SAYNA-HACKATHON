@@ -1,5 +1,5 @@
 # SAYNA-HACKATHON-BIRA-BEST-2023
-Phase de découverte : https://youtu.be/oIOPXI4SbI8
+Phase de découverte : https://youtu.be/uT1Gg9T_ZZU
 
 Phase d'orientation : https://youtu.be/WB3EE6prt7U
 
